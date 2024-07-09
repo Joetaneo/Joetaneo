@@ -1,5 +1,5 @@
 - Hello! I’m Joe Taneo
-- I am a recently graduated college student from San Francisco State University
+- I am a graduated college student from San Francisco State University
 - I earned a B.S. degree in Business Administration, Concentration in Marketing
 - I’m looking to become a Sales Development Representative, and work under the business tech industry
 - You can reach out to me through my LinkedIn profile (Joseph Taneo), or email (Josephtaneo@ymail.com)
